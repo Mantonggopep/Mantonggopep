@@ -1,4 +1,4 @@
-- 👋 I am Dr. Mantong Gopep, a Doctor of Veterinary medicine from Nigeria, Im passionate about data, and analysing it to give a beautiful picture.
+- 👋 I am Dr. Mantong Gopep, a Doctor of Veterinary medicine from Nigeria, I am passionate about data, and analysing it to give a beautiful picture.
 
 - 🧠 I'm also interested in Cybersecurity and Project management and I have vast experience in them also
 
